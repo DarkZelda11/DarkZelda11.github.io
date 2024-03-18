@@ -17,3 +17,12 @@ The Watermelon will soon follow
 Be ready for the fruitpokalypse
 
 It is coming
+
+Before or after Skynet?
+
+It is unknown
+
+What is known is that it will happen
+
+And when it does none will be ready
+
